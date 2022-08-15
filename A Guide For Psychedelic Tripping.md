@@ -55,6 +55,8 @@ To fathom hell or soar angelic, just take a pinch of psychedelic.
 
 
 
+Purposes for tripping include:
 
+Expanding your mind, raising your awareness, increasing consciousness, boundary dissolution, unity, connectedness, feeling one with everything, to experience love, artistic appreciation, practice of beauty, exercise, exploration, 
 
 
