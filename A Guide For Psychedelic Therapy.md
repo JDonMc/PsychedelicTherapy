@@ -1,13 +1,3 @@
-In this repo you will find a Guide for Psychedelic Tripping, A Guide for Psychedelic Therapy and a Guide for Training Psychedelic Therapists.
+In this Guide you will find a few key features of harm minimised therapy techniques, like keeping the location secure, documenting the set and setting, documenting the trip, meditating before during and after. Diet and music appropriate to the molecule and the person.
 
-This is meant to be a complete Attempt, but is in no way a complete and exhaustive replacement for doing the research yourself.
-
-Each document will be a compendium of the relevant information coming from books, individuals, research papers and organizations.
-
-Each document will be commented on and we will attempt to achieve consensus as to the best form of the document to be presented to all parties and signed off on as a Guide worth standing by.
-
-These Guides are another word for a Set of Protocols, and addending information.
-
-We intend to be informative, harm reductive, experimental, theoretical, practical, and applicable.
-
-We would like to test the results of these guides so that we can lay the path for improving the process.
+This guide revolves around health, safety, harm reduction, and a positive growth environment.
