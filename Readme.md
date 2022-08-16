@@ -81,3 +81,16 @@ https://pubmed.ncbi.nlm.nih.gov/35837277/
 
 Current Psychedelic Therapy Guides
 (Attached)
+
+
+
+
+
+
+
+
+
+
+Useful websites:
+
+effectindex.com psychonautwiki.org
