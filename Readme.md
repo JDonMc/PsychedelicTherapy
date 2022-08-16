@@ -44,7 +44,7 @@ MAPS, Compass, MindMed,
 
 The major individuals associated with psychedelics include:
 
-Dennis McKenna, Robin Carhart Harris, Terence McKenna, Timothy Leary, Aubrey Marcus, Michael Pollan, Hamilton Morris, David Nutt, Rick Doblin, 
+Dennis McKenna, Robin Carhart Harris, Terence McKenna, Timothy Leary, Aubrey Marcus, Michael Pollan, Hamilton Morris, David Nutt, Rick Doblin, Rick Strassman
 
 
 
