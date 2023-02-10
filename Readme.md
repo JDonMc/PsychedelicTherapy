@@ -94,10 +94,22 @@ Current Psychedelic Therapy Guides
 Useful websites:
 
 effectindex.com psychonautwiki.org
+erowid.org
 
 
+Useful Pseudonymous Books:
 
 
+- Certain Exotic Transmitters as SMART PILLS or Compounds that Increase the Capacity for Mental Work in Humans
+https://erowid.org/chemicals/2cd/2cd_smartpills1.shtml
+
+- The Construction and Operation of Clandestine Drug Laboratories
+
+https://erowid.org/library/books/clandestine_drug.shtml
+
+- The Modern Alchemist A Guide to Personal Transformation
+
+https://www.erowid.org/library/books/modern_alchemist_guide.shtml
 
 
 
